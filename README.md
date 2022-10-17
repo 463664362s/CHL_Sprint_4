@@ -9,4 +9,4 @@
 
 **Turma: 2TDSF**
 
-Link do video de apresentação: '''
+Link do video de apresentação: https://youtu.be/eq1GwxTyozA
